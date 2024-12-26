@@ -1,4 +1,5 @@
-![Banner para GitHub](https://github.com/user-attachments/assets/d89f44db-8676-45a7-885f-42c04f8504fa)
+![Banner para LinkedIn](https://github.com/user-attachments/assets/dcee379e-26b1-4404-8908-e169877ec8cb)
+
 
 
 
